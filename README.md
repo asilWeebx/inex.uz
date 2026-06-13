@@ -1,1 +1,2 @@
 # inex.uz
+# inex.uz
